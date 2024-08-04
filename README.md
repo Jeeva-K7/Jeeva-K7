@@ -1,4 +1,4 @@
-🚀 Tech Explorer | 🌟 Open Source Contributor
+🚀 Tech Explorer 
 
 🎨 Crafting lines of code while sipping coffee and dreaming in binary.
 
